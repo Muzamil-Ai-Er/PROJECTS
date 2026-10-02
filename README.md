@@ -1,2 +1,2 @@
 # PROJECTS
-Here i try to change my learned skill to practical skills
+Here i try to change my theory skills to practical skills!
